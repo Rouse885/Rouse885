@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Rouse885
 - 👀 I’m interested in games
 - 🌱 I’m currently learning
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on 2023 high school entrance examination with excellent results
 - 📫 How to reach me 3473237370@qq.com
 
 <!---
