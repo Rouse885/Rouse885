@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Rouse885
 - 👀 I’m interested in study
 - 🌱 I'm currently learning
-- 💞️ I’m looking to collaborate on 2023 high school entrance examination with excellent results
+- 💞️ I’m looking to collaborate on 2026 university entrance examination with excellent results
 - 📫 How to reach me 3473237370@qq.com
 - 😄 My Page rouse.j6v.me
 <!---
